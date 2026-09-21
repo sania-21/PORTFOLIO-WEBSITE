@@ -1,1 +1,0 @@
-https://jovialoutfits.lovable.app/
